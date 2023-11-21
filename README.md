@@ -1,1 +1,0 @@
-# ppmanbaululum.id
